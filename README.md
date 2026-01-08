@@ -1,7 +1,10 @@
 # hey-hey-its-sebbyz, ok i'll get to the identification part to spare ya some time alright. heyo, i'm sebbyz or sebby. i like uh my friends, muilti fandomers and my older sibling because she isn't mean most of the time. but i have a bunch of alters and here are some.! bluudud, past 007n7, sebastian solace, artfhl and orchestraful, past and present azure, jestertime, but i have more. i will refused to share the rest due to me having many but i will make sure to add them soon, sometimes different characters will be playing. i do have a youtube channel it is @sebbyzsupersillychannel ok. i have 2 friends who also have a git hub @bluunny and @SubSpacesZero.
  i am really young but i don't care about how weird  you have chosen to  act around me but if you be too perculiar and i have just met you then, i will remove you from my list of friends.  my friends are a bit unhinged but its fine. i will not respond to people over 18+ or 18. my birth date is 12/6 and im not tellin my age because i don't trust anyone easily unless your very close. some times i can be clingy or when a different friend comes might not talk to them due to probably being with a different friend.! 
- i'm a multi-fandomer too some of my fandoms are not forsaken i just play the game, dandy's world, TRUD , dod, pressure and more but again i dunno which ones i am in. i am a young artist, but i do curse on online games like uh pony town. . so uh buh bye luv you germz and kim.! ^_^
-when my name in pony town says dniuf or dni and dont boop i actually mean it. so don't boop unless you want me to clarify what 'dont boop me' means ok.? also i have social anxiety so dont randomly sit next to me i will move away and if you move back toward me i will tell you to leave me alone if you refuse to comply i will hide and block you for my remaining time on earth ok.
+
+ i'm a multi-fandomer too some of my fandoms are not forsaken i just play the game, dandy's world, TRUD , dod, pressure and more but again i dunno which ones i am in. i am a young artist, but i do curse on online games like uh pony town. .
+
+When my name in pony town says dniuf or dni and dont boop i actually mean it. so don't boop unless you want me to clarify what 'dont boop me' means ok.? also i have social anxiety so dont randomly sit next to me i will move away and if you move back toward me i will tell you to leave me alone if you refuse to comply i will hide and block you for my remaining time on earth ok.
 i hope you have entertained yourself reading this read me.! ok cuh be quiet
-i don't like being left alone or excluded.
+i don't like being left alone or excluded. S0 BYE VYE  LOVE YOU GERMZ AD KIM.!!
 KIM IF YOU DONT FRIEND ME ON PONY TOWN IM GOING TO TWEAK HELP RME
+pls follow my git i have 8 followers still-
